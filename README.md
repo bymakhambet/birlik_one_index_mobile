@@ -1,0 +1,2 @@
+# birlik_one_index_mobile
+birlik_one_index_mobile
